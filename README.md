@@ -32,14 +32,16 @@ so long
 yeah
 ya
 had a better chance when i was here
-i thought i made it clear 
-to all the haters (bumpin')
+- i thought i made it clear 
+to all the hateeeers (bumpin')
 winding down you thought but i just disappeared
+aye
 
 good stuff in the clots, feeling phased
 i thought, made a pact with my blood and thoughts
 veins tied into knots, constricted
 flows must break through the fog
+aye
 
 and/then suddenly everything became so clear
 in my mind traces of fear turned previous passions into naught
