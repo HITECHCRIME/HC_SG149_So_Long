@@ -33,15 +33,17 @@ yeah
 ya
 had a better chance when i was here
 i thought i made it clear 
-to all the haters 
+to all the haters (bumpin')
 winding down you thought but i just disappeared
 
 good stuff in the clots, feeling phased
 i thought, made a pact with my blood and thoughts
 
 and/then suddenly everything became so clear
-traces of fear in my mind, turn around you fool
-turn around.
+traces of fear in my mind, 
+
+turn around you fool
+turn around
 
 
 ```
