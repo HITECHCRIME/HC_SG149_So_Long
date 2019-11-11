@@ -40,7 +40,7 @@ good stuff in the clots, feeling phased
 i thought, made a pact with my blood and thoughts
 
 and/then suddenly everything became so clear
-traces of fear in my mind, 
+in my mind traces of fear turned previous passions into naught
 
 turn around you fool
 turn around
