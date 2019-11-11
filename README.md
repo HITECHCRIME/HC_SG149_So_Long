@@ -11,7 +11,7 @@ Night Lovell Type Beat Poison (Prod. NetuH)
 
 **Title:**  / **Featuring:** 
 
-**Production:** NetuH / **Lyrics:** 
+**Production:** NetuH / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
