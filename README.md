@@ -1,4 +1,4 @@
-[cover] ![](HC_SG149_placeholdervisual.png)
+![](HC_SG149_placeholdervisual.png)
 
 # MOTHNODE_ So Long
 
