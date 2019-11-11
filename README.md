@@ -6,12 +6,12 @@
 
 ## Project Data
 
-Description.
+Night Lovell Type Beat Poison (Prod. NetuH)
 
 
 **Title:**  / **Featuring:** 
 
-**Production:**  / **Lyrics:** 
+**Production:** NetuH / **Lyrics:** 
 
 ## Lyrics
 
