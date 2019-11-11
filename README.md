@@ -53,9 +53,13 @@ in a flash of light and/then suddenly everything became so clear
 
 turned previous passions into naught in my mind traces of fear 
 
+get lost 
+get lost
+so long
+so long
+
 turn around you fool
 turn around
-
 
 ```
 
