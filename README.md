@@ -9,7 +9,7 @@
 Night Lovell Type Beat Poison (Prod. NetuH)
 
 
-**Title:**  / **Featuring:** MOTHNODE
+**Title:** So Long / **Featuring:** MOTHNODE
 
 **Production:** NetuH / **Lyrics:** MOTHNODE
 
