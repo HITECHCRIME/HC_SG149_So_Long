@@ -1,6 +1,6 @@
 [cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ So Long
 
 **Listen now:** 
 
@@ -16,6 +16,16 @@ Description.
 ## Lyrics
 
 ```
+so long
+so long
+so long
+you had a better chance when i was here
+i thought i made it clear to all the haters 
+winding down you thought but i just disappeared
+
+good stuff in the clots, feeling phased
+i thought. made a pact with my blood and thoughts
+and suddenly everything became so clear
 
 
 ```
