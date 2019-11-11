@@ -28,20 +28,20 @@ yeah
 
 so long 
 so long
-so long 
+so long ...
 yeah
 ya
 had a better chance when i was here
 - i thought i made it clear 
 to all the hateeeers (bumpin' me)
 winding down you thought but i just disappeared
-aye
+aye good luck
 
-good stuff in the clots, feeling phased
+goooood stuff in the clots, feeling phased
 i thought, made a pact with my blood and thoughts
 veins tied into knots, constricted
 flows must break through the fog
-before the night is (over)
+before the night is (over) (done)
 aye
 
 in a flash of light and/then suddenly everything became so clear
