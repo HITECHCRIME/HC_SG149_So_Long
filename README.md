@@ -19,13 +19,25 @@ Description.
 so long
 so long
 so long
+
+so long 
+so long
+so long 
+
+so long 
+so long
+so long 
+
 you had a better chance when i was here
 i thought i made it clear to all the haters 
 winding down you thought but i just disappeared
 
 good stuff in the clots, feeling phased
-i thought. made a pact with my blood and thoughts
+i thought, made a pact with my blood and thoughts
+
 and suddenly everything became so clear
+traces of fear in my mind, turn around you fool
+turn around.
 
 
 ```
