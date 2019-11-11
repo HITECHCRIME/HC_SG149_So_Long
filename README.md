@@ -26,10 +26,15 @@ so long
 so long 
 yeah
 
+so long
+so long
+so long
+yeah
+
 so long 
 so long
-so long ...
-yeah
+... fades
+
 ya
 had a better chance when i was here
 - i thought i made it clear 
@@ -45,7 +50,8 @@ before the night is (over) (done)
 aye
 
 in a flash of light and/then suddenly everything became so clear
-in my mind traces of fear turned previous passions into naught
+
+turned previous passions into naught in my mind traces of fear 
 
 turn around you fool
 turn around
