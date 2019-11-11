@@ -38,6 +38,8 @@ winding down you thought but i just disappeared
 
 good stuff in the clots, feeling phased
 i thought, made a pact with my blood and thoughts
+veins tied into knots, constricted
+flows must break through the fog
 
 and/then suddenly everything became so clear
 in my mind traces of fear turned previous passions into naught
