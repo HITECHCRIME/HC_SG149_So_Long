@@ -16,6 +16,11 @@ Night Lovell Type Beat Poison (Prod. NetuH)
 ## Lyrics
 
 ```
+
+*rustling of leaves*
+*weird moans in the distance*
+*think of entities that take away humans and imprisons them*
+
 so long
 so long
 so long
