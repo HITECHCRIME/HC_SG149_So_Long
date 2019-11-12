@@ -51,7 +51,7 @@ goooood stuff in the clots, feeling phased
 i thought, made a pact with my blood and thoughts
 veins tied into knots, constricted
 flows must break through the fog
-before the night is (over) (done)
+before the night is (done) (over) 
 aye
 
 in a flash of light and/then suddenly everything became so clear
