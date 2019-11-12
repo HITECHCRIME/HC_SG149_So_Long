@@ -80,3 +80,5 @@ turn around
 ## Notes
 
 ## Music Video
+
+Forest scenery. Darkness of the rhizome. Roots swirling through the forest litter. The journey continues as we travel through the dreamy mists of the moat. Weird sounds and monumental shapes sometiems appear in the shadows as we try to avoid them.
