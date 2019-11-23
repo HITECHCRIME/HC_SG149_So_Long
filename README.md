@@ -87,3 +87,5 @@ turn around
 ## Music Video
 
 Forest scenery. Darkness of the rhizome. Roots swirling through the forest litter. The journey continues as we travel through the dreamy mists of the moat. Weird sounds and monumental shapes sometiems appear in the shadows as we try to avoid them.
+
+"The universe is a dark forest. Every civilization is an armed hunter stalking through the trees like a ghost, gently pushing aside branches that block the path and trying to tread without sound. Even breathing is done with care. The hunter has to be careful, because everywhere in the forest are stealthy hunters like him. If he finds another life—another hunter, angel, or a demon, a delicate infant to tottering old man, a fairy or demigod—there's only one thing he can do: open fire and eliminate them."
